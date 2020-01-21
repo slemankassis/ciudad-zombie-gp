@@ -1,1 +1,0 @@
-# ciudad-zombie-gp
